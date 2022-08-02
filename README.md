@@ -1,1 +1,1 @@
-# minecraftingtutorial.github.io
+# minecraftingtutorial.com
